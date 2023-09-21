@@ -1,0 +1,1 @@
+# https-github.com-ishandutta2007-linkedin-resume-bulk-download-extension-mini
